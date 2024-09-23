@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Kanika
 - 👀 I’m interested in making an app
 - 🌱 I’m currently in 9th grade
-- 💞️ I’m looking to collaborate on thb nothing rn.
+- 💞️ I’m looking to collaborate on tbh
+- nothing rn.
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Did you know Sharks don't poop.😝
 
